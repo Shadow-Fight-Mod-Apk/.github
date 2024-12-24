@@ -1,8 +1,7 @@
 # Shadow Fight 2 Mod Apk 2.40.0 (Unlimited Money)
 
-![Shadow Fight 2]([https://example.com/feature-image.jpg](https://encrypted-tbn3.gstatic.com/images?q=tbn:ANd9GcSchwGiR0PI9a53wL0kWokpkiHcFio-_bf4NcacWQZGnQiq2FpT))  
+![Capybara Go Cover](https://shadowfight2.com/images/logored.png)
 
----
 
 ## Shadow Fight Game Info
 
