@@ -2,7 +2,7 @@
 
 ![Capybara Go Cover](https://shadowfight2.com/images/logored.png)
 
-## [**Download Shadow Fight 2 Mod Apk**](https://file.shadowfight2.net/shadow-fight-2-mod_shadowfight2.net.apk)
+## [**Download Shadow Fight 2 Mod Apk**](https://Noobgo.com)
 
 ## Shadow Fight Game Info
 
@@ -74,7 +74,7 @@ Tired of bugs and crashes? This mod ensures smooth gameplay with all bugs fixed,
 4. The installation will begin automatically.
 5. Once installed, open the game and start your adventure!
 
-## [**Download Shadow Fight 2 Mod Apk**](https://file.shadowfight2.net/shadow-fight-2-mod_shadowfight2.net.apk)
+## [**Download Shadow Fight 2 Mod Apk**](https://noobgo.com)
 
 ---
 
